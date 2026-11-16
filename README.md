@@ -1,0 +1,1 @@
+# Circuito-de-tinkercad-sem-foro-inteligente
